@@ -1,1 +1,1 @@
-[warcrimedmc](warcrimedmc.tk)
+[Warcrimed MC](warcrimedmc.tk)
